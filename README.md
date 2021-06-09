@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Le Huu Vinh .
+- - 🌱 I’m currently learning Ho Chi Minh city Technology .
 - 👀 My favorite is sports and read book , special i can play football full a day ^^ .
-- 🌱 I’m currently learning Ho Chi Minh city Technology .
 - 📫 You can reach me at 1614117@hcmut.edu.vn , Welcome ...
 
 <!---
